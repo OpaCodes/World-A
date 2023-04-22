@@ -9,13 +9,13 @@ April 22
 
 Below are some streams of consciousness from myself.
 
-The ordered numbers between brackers start from the bottom and go up.
+The ordered numbers between brackets start from the bottom and go up.
 
 They're mainly divisions of the different thoughts that come to my mind as I develop.
 
 (3)
 
-Why have I chosen to adopt a manga/comic, specifically CHainsaw Man, into this world (as well as my Spanish world)?
+Why have I chosen to adopt a manga/comic, specifically Chainsaw Man, into this world (as well as my Spanish world)?
 
 - Reading through immersion-
 
