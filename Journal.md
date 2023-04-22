@@ -5,6 +5,20 @@ _________
 
 ___ 
 
+April 22
+
+(2)
+
+Unity is amazing.
+
+I want to learn and understand it better.
+
+If I learn more about how to use Unity, I reduce my limitations.
+
+Learning is amazing.
+
+(1)
+
 Oh my, I have done something quite silly.
 
 Time to tidy up a bit.
