@@ -14,6 +14,24 @@ They're mainly divisions of the different thoughts that come to my mind as I dev
 
 April 23
 
+(3)
+
+A minor note about the white panel: if you scroll down to the bottom of the chapter menu that's near the video player you'll see a button labelled CSM which you can click. 
+
+That will load the first chapter of Chainsaw Man. 
+
+There's a bit of experimenting going on and I am yet undecided how to display images.
+
+At the moment, the images for CSM are being loaded in via the game's Image Loading mechanic - it basically reduces the need to update as often just to update image content.
+
+The drawback, if there is one, is that there's a wait time for images to load. If an image doesn't seem to load, clicking the CSM button mentioned earlier once or a few times can help.
+
+I am still evaluating this method. 
+
+On one hand, it helps to reduce world size and having to redownload per new update.
+
+On the other, waiting for images to load is not fun!
+
 (2)
 
 The first update of several to come will be a quick fix so that chapters aren't shown all at once by default.
