@@ -5,19 +5,26 @@ _________
 
 ___ 
 
+Below are some streams of consciousness from myself.
+
+The ordered numbers between brackets start from the bottom and go up.
+
+They're mainly divisions of the different thoughts that come to my mind as I develop.
+
+
 April 23
+
+(2)
+
+The first update of several to come will be a quick fix so that chapters aren't shown all at once by default.
+
+(1)
 
 I built the world again but it seems the game has published it officially.
 
 It's a work in progress - I'm currently working on it as I write this so there's going to be some updates in a bit.
 
 April 22
-
-Below are some streams of consciousness from myself.
-
-The ordered numbers between brackets start from the bottom and go up.
-
-They're mainly divisions of the different thoughts that come to my mind as I develop.
 
 (5)
 
