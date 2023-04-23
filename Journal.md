@@ -5,6 +5,12 @@ _________
 
 ___ 
 
+April 23
+
+I built the world again but it seems the game has published it officially.
+
+It's a work in progress - I'm currently working on it as I write this so there's going to be some updates in a bit.
+
 April 22
 
 Below are some streams of consciousness from myself.
