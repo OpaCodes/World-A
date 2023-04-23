@@ -14,6 +14,20 @@ They're mainly divisions of the different thoughts that come to my mind as I dev
 
 April 23
 
+(4)
+
+It would be nice to be able to write and take notes is something I have had in mind.
+
+So I have now added functionality for this.
+
+Is it finalized? Not yet.
+
+There's another thing I have had on my radar: making it possible to read together in tandem (i.e., synchronizing the pages).
+
+A good use case is, for instance, to help with reading and annotating when explaining if with someone else.
+
+I have yet to learn how to achieve this. When I learn how to, I will provide an option to sync or not for convenience.
+
 (3)
 
 A minor note about the white panel: if you scroll down to the bottom of the chapter menu that's near the video player you'll see a button labelled CSM which you can click. 
