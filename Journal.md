@@ -13,6 +13,10 @@ The ordered numbers between brackets start from the bottom and go up.
 
 They're mainly divisions of the different thoughts that come to my mind as I develop.
 
+(5)
+
+Accidentally closed the Unity window during a recent build without saving progress. I shall sleep.
+
 (4)
 
 Unity crashes multiple times, must inhale and exhale.
