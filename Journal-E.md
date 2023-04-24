@@ -3,6 +3,18 @@ Journal
 _________
 ___ 
 
+= April 23 =
+
+I have added a Spanish-English dictionary to make it easier to look up words when reading.
+
+Originally, there was only an English-Spanish dictionary, which is useful for finding how to say specific Spanish words.
+
+Also, it's nice to be able to write, note and annotate; a board can help make it easier to write neatly as well.
+
+I won't say more for now.
+
+But, I wish you a spectacular day (or night).
+
 =April 17 =
 
 Hi,
