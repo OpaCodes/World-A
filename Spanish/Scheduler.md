@@ -1,9 +1,7 @@
 Upcoming Events
 
 ======
-
 May 03
-
 ======
 
-Watching Chicken Little
+Watching Chicken Little (Passed)
