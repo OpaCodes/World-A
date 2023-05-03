@@ -1,3 +1,1 @@
-This is the re-journal. 
-
-Indeed.
+Perhaps I'm bad at keeping journal.
