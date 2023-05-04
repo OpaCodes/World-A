@@ -1,1 +1,1 @@
-Perhaps I'm bad at keeping journal.
+Perhaps I'm bad at keeping journals.
