@@ -26,4 +26,4 @@ My mantra is: No rush and no expectations, do it for the fun and see where it go
 
 I don't antipicate the world being full during an event because it's a bit niche and that's partially why I kept the player count as low as it is. But if there's no more room to join and you would like to, feel free to add me: from what I understand, the maximum player count in a world doubles if friends join.
 
-With that said, have a wonderful day and perhaps enjoy them film if you decide to hop by !
+With that said, have a wonderful day and perhaps enjoy the film if you decide to hop by !
