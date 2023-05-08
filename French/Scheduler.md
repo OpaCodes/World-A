@@ -8,6 +8,10 @@ Watching the series: Attack on Titan (Season 4, Episodes 1-3)
 
 __________________________________
 
+New Chainsaw Man chapter added every Tuesday at around 17:00 (UTC)
+
+__________________________________
+
 Events are an experimental idea. For me, they're an excuse to watch films or series that I have been meaning to watch and would have otherwise watched by myself ! 
 
 But for you, you might like to use them to connect with other learners of the language.
