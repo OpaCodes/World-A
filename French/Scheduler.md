@@ -8,7 +8,7 @@ Watching the series: Attack on Titan (Season 4, Episodes 1-3)
 
 __________________________________
 
-New Chainsaw Man chapter added every Tuesday at around 17:00 (UTC)
+New Jujutsu Kaisen chapter added every Sunday at around 17:00 (UTC)
 
 __________________________________
 
