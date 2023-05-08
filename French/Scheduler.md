@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-May 05, 21:00 - 23:00 (UTC)
+May 12, 21:00 - 22:00 (UTC)
 ===========================
 
-Watching the film: Encanto
+Watching the series: Attack on Titan (Season 4, Episodes 1-3)
 
 __________________________________
 
