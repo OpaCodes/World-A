@@ -1,7 +1,7 @@
 Upcoming Events
 
 ===========================
-May 13, 21:00 - 22:00 (UTC)
+May 13, 21:00 - 23:00 (UTC)
 ===========================
 
 Watching the film: Lilo and Stitch
