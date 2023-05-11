@@ -2,7 +2,7 @@ This is a universal board. Currently its use is to highlight any updates.
 
 _________________________________________________________________________
 
-𓇻May 11𓇻
+★May 11★
 ______
 
 Reading can be fun so I have added a separate book that can be read in each world. For French, I have chosen the story of The Three Musketeers; for Spanish, I have chosen Treasure Island; and for Arabic, well, Harry Potter because why not.
