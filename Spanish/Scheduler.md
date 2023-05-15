@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-May 13, 21:00 - 22:30 (UTC)
+May 20, 21:00 - 22:45 (UTC)
 ===========================
 
-Watching the film: Lilo and Stitch
+Watching the film: Coco
 
 __________________________________
 
