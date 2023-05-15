@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-May 14, 21:00 - 22:20 (UTC)
+May 21, 21:00 - 22:30 (UTC)
 ===========================
 
-Watching the film: The Emperor's New Groove
+Watching the film: Kung Fu Panda I
 
 __________________________________
 
