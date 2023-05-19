@@ -5,17 +5,7 @@ _________________________________________________________________________
 May 19
 ______
 
-There's a baby pen, you may have noticed. The reason why it exists is because I wanted to experiment a little bit. It can be a surprise how much neater writing can turn out when writing with a small pen in a 3D space.
-
-Another thing I realized is that changing locomotion from free-move to teleport mode makes writing on a surface feel a lot more natural. Trying it is better than me explaining it perhaps.
-
-I have been enjoying the events idea so far. As for my journal, I have been putting thought into it because I have never really written a journal before; at least, I don't remember having one. Because of this, I have been questioning a bit about things like: 'How to write a journal?' and 'How to layout a journal?' as well as 'How to be consistent in writing a journal?' 
-
-and...
-
-Anyway, I have been enjoying the events idea a lot. There's more which I would like to say but I'll save it for another time.
-
-That said, I wish you a wonderful day.
+It is indeed May 19.
 
 _________________________________________________________________________
 
