@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-May 20, 21:00 - 22:45 (UTC)
+May 27, 21:00 - 22:45 (UTC)
 ===========================
 
-Watching the film: Coco
+Watching the film: Wreck It Raplh
 
 __________________________________
 
