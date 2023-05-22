@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-May 21, 21:00 - 22:30 (UTC)
+May 28, 21:00 - 22:30 (UTC)
 ===========================
 
-Watching the film: Kung Fu Panda I
+Watching the film: Finding Dory
 
 __________________________________
 
