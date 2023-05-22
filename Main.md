@@ -1,13 +1,21 @@
 This is a universal board. Currently its use is to highlight any updates.
 
-_________________________________________________________________________
+_________________________________________________________
+
+May 22
+______
+
+Changing the movement setting to teleport mode makes writing feel a lot more natural I have recently learned.
+
+_________________________________________________________
 
 May 19
 ______
 
 It is indeed May 19.
 
-_________________________________________________________________________
+_________________________________________________________
+
 
 May 11
 ______
