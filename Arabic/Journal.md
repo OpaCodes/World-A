@@ -11,3 +11,7 @@ ______________
 While I was going to replace this as soon as I noticed it, when comparing both books, The Philosopher's Stone surprisingly has a lot more words per page (twice as much, which is a bit scary !). 
 
 The Chamber of Secrets, on the other hand, looks simpler to read with fewer words per page and so it feels more accessible for a first read so I am going to keep it.)
+
+______________
+
+For the time being, this journal is an afterthought; learning and working on the fundamentals is the current goal.
