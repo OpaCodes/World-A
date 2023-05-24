@@ -2,6 +2,17 @@ This is a universal board. Currently its use is to highlight any updates.
 
 _________________________________________________________
 
+May 24
+______
+
+Addressing a past remark which said: "Currently, regular updates of 5 new pages are made every (I haven't decided yet) weeks."
+
+New evaluation: biweekly updates work for the time being due it being a realistic and comfortable pace to keep up with reading.
+
+New book pages updated weekly would be even nicer but a bit of testing the waters comes first!
+
+_________________________________________________________
+
 May 22
 ______
 
