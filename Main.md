@@ -2,6 +2,13 @@ This is a universal board. Currently its use is to highlight any updates.
 
 _________________________________________________________
 
+May 26
+______
+
+New page updates to the story books are scheduled to happen every second Friday at 20:00 (UTC).
+
+_________________________________________________________
+
 May 24
 ______
 
