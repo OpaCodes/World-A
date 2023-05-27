@@ -4,7 +4,7 @@ Upcoming Events
 May 27, 21:00 - 22:45 (UTC)
 ===========================
 
-Watching the film: Wreck It Raplh
+Watching the film: Wreck It Ralph
 
 __________________________________
 
