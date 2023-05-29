@@ -1,7 +1,7 @@
 Upcoming Events
 
 ===========================
-June 20, 21:00 - 22:45 (UTC)
+June 10, 21:00 - 22:45 (UTC)
 ===========================
 
 Watching the film: Onward
