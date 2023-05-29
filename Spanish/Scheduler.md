@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-May 27, 21:00 - 22:45 (UTC)
+June 20, 21:00 - 22:45 (UTC)
 ===========================
 
-Watching the film: Wreck It Ralph
+Watching the film: Onward
 
 __________________________________
 
