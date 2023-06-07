@@ -2,6 +2,12 @@ This is a universal board. Currently its use is to highlight any updates.
 
 _________________________________________________________
 
+June 07
+______
+
+A minor heads up: if you see a lookup dictionary (and possibly it sees you as well), keep in mind that it solely accepts English input currently.
+_________________________________________________________
+
 May 26
 ______
 
