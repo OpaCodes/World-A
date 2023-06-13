@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-June 11, 21:00 - 22:30 (UTC)
+June 18, 21:00 - 21:55 (UTC)
 ===========================
 
-Watching the film: Kung Fu Panda II
+Watching the series: The Magic of Fishing
 
 __________________________________
 
