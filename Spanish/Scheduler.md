@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-June 10, 21:00 - 22:45 (UTC)
+June 17, 21:00 - 21:45 (UTC)
 ===========================
 
-Watching the film: Onward
+Watching the series: Reporteros 360: Mis vecinos ocupas
 
 __________________________________
 
