@@ -4,7 +4,7 @@ Upcoming Events
 June 09, 21:00 - 22:00 (UTC)
 ===========================
 
-Watching the series: Attack on Titan (Season 4, Episodes 10-12)
+Watching the series: Attack on Titan (Season 4, Episodes 13-15)
 
 __________________________________
 
