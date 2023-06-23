@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-June 17, 21:00 - 21:45 (UTC)
+June 24, 21:00 - 21:40 (UTC)
 ===========================
 
-Watching the series: Reporteros 360: Mis vecinos ocupas
+Watching the series: Reporteros 360: Entre Basura
 
 __________________________________
 
