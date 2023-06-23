@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-June 18, 21:00 - 21:55 (UTC)
+June 25, 21:00 - 21:30 (UTC)
 ===========================
 
-Watching the series: The Magic of Fishing
+Watching the series: Guest House = The Chefchaouen Cuisine
 
 __________________________________
 
