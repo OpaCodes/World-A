@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-June 23, 21:00 - 21:20 (UTC)
+July 7, 21:00 - 21:20 (UTC)
 ===========================
 
-Watching the series: Attack on Titan (Season 4, Episode 16 | Last episode available at the moment)
+Watching the series: Attack on Titan (Season 4, Episode 17 | Last episode available at the moment)
 
 __________________________________
 
