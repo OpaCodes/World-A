@@ -1,10 +1,10 @@
 Upcoming Events
 
 ===========================
-June 24, 21:00 - 21:40 (UTC)
+July 07, 20:20 - 21:00 (UTC)
 ===========================
 
-Watching the series: Reporteros 360: Entre Basura
+Watching the series: Reporteros 360: Metro de Madrid, Linea 1
 
 __________________________________
 
